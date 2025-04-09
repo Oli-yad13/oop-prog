@@ -1,1 +1,1 @@
-## Hello people htis is our group.
+## Hello people this is our group.
